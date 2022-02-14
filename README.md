@@ -1,6 +1,6 @@
 # Halo semua! 
 
-Perkenalkan nama saya **Gilang Ramadhan**.\
+Perkenalkan nama saya **candra123456**.
 
 Saya seorang **Mahasiswa** di Universitas Prima Indonesia.\
 
